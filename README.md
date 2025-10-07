@@ -1,1 +1,1 @@
-# Cyber Journey
+# Cybersecurity Jrny
